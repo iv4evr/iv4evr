@@ -1,2 +1,2 @@
-<p align="center"><img alt="tumblr_26614860d9c717362036794f56740773_9b8059e6_1280" src="https://github.com/user-attachments/assets/49d7e437-ea6d-478f-8051-0cb9a8edc1c0" />
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Cinzel&pause=1000&color=93A1FE&center=true&vCenter=true&width=435&lines=Why+fight+to+get+a+better+life%2C;when+I+can+just+switch+;with+someone+else+in+another+world%3F" alt="Typing SVG" /></a>
+<p align="center"><img alt="tumblr_e59e8af5d976a89dfa4cfb9dca8956db_7d859cb5_540" src="https://github.com/user-attachments/assets/24817f15-c043-49d7-907b-f7ee78638619" />
+<p align="center"> ${\textsf{\color{#fdc3d1}ME N MY BF !!!!}}$ <a href=https://github.com/localxxalt/> @localxxalt</a>
